@@ -6,11 +6,8 @@
 <p align="center"><a href="https://open.spotify.com/track/0UOG0zUn7t8m8QcxfzR7AH?si=f28406ae96404201)"> ❝ 𝘰𝘩, 𝘨𝘰𝘭𝘥𝘦𝘯 𝘣𝘰𝘺, 𝘥𝘰𝘯'𝘵 𝘢𝘤𝘵 𝘭𝘪𝘬𝘦 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘬𝘪𝘯𝘥,</a>
 <p align="center"><a href="https://open.spotify.com/track/0UOG0zUn7t8m8QcxfzR7AH?si=f28406ae96404201)"> 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘮𝘪𝘯𝘦, 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘢𝘸𝘧𝘶𝘭 𝘦𝘷𝘦𝘳𝘺 𝘵𝘪𝘮𝘦. ❞</a>
 <sup><p align="center">𝘥𝘦𝘵𝘳𝘰𝘪𝘵: 𝘣𝘦𝘤𝘰𝘮𝘦 𝘩𝘶𝘮𝘢𝘯 𝘦𝘯𝘵𝘩𝘶𝘴𝘪𝘢𝘴𝘵 𝘴𝘪𝘯𝘤𝘦 2020</p><sup>
-  <p align="center">𝘩𝘺𝘱𝘦𝘳𝘧𝘪𝘹𝘢𝘵𝘪𝘰𝘯</p>
-<p align="center">𝘥𝘦𝘭𝘵𝘢𝘳𝘶𝘯𝘦, 𝘥𝘣𝘩 & 𝘩𝘢𝘮𝘪𝘭𝘵𝘰𝘯 (𝘮𝘶𝘴𝘪𝘤𝘢𝘭)</p>
 <p align="center">𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴</p>
 <p align="center">𝘶𝘳𝘣𝘦𝘹, 𝘵𝘩𝘳𝘪𝘧𝘵𝘪𝘯𝘨, 𝘨𝘳𝘦𝘦𝘬 𝘮𝘺𝘵𝘩𝘰𝘴, 𝘵𝘩𝘦 𝘮𝘦𝘥𝘪𝘤𝘢𝘭 𝘧𝘪𝘦𝘭𝘥, 𝘢𝘥𝘶𝘭𝘵 𝘴𝘸𝘪𝘮 & 𝘱𝘶𝘱𝘱𝘦𝘵𝘳𝘺.</p>
-
 <p align="center">𝘭𝘪𝘴𝘵 𝘰𝘧 𝘣𝘶𝘥𝘥𝘪𝘦𝘴</p><p align="center">⟢ 𝘫𝘰𝘦𝘺, 𝘯𝘪𝘯𝘦𝘴, 𝘷𝘶𝘭𝘱𝘦𝘴, 𝘸𝘦𝘴𝘬𝘦𝘳, 𝘵𝘰𝘮, 𝘩𝘦𝘳𝘮𝘦𝘴,
 𝘳𝘰𝘭𝘢𝘯, 𝘬𝘢𝘵𝘦, 𝘬𝘢𝘵𝘵, 𝘬𝘢𝘳𝘢, 𝘰𝘥𝘺, 𝘭𝘦𝘰𝘯, 𝘦𝘭𝘪𝘴𝘦, 𝘥𝘵, 𝘤𝘢𝘴𝘦 & 𝘮𝘹 𝘳𝘰𝘣𝘭𝘰𝘹𝘪𝘢. ⟢</p>
  <p align="center">⋆</p>
