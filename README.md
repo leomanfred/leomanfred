@@ -2,8 +2,8 @@
 
 <sup><p align="center">![ezgif-751578a68ba64a](https://github.com/user-attachments/assets/1c3c2520-054f-463c-93ee-4d6e4ce9cf64)</p><sup>
 
-<sup><p align="center"><a href="https://open.spotify.com/track/0UOG0zUn7t8m8QcxfzR7AH?si=f28406ae96404201)"> ❝ 𝘰𝘩, 𝘨𝘰𝘭𝘥𝘦𝘯 𝘣𝘰𝘺, 𝘥𝘰𝘯'𝘵 𝘢𝘤𝘵 𝘭𝘪𝘬𝘦 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘬𝘪𝘯𝘥,</a><sup>
-<sup><p align="center"><a href="https://open.spotify.com/track/0UOG0zUn7t8m8QcxfzR7AH?si=f28406ae96404201)"> 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘮𝘪𝘯𝘦, 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘢𝘸𝘧𝘶𝘭 𝘦𝘷𝘦𝘳𝘺 𝘵𝘪𝘮𝘦. ❞</a><sup>
+<p align="center"><a href="https://open.spotify.com/track/0UOG0zUn7t8m8QcxfzR7AH?si=f28406ae96404201)"> ❝ 𝘰𝘩, 𝘨𝘰𝘭𝘥𝘦𝘯 𝘣𝘰𝘺, 𝘥𝘰𝘯'𝘵 𝘢𝘤𝘵 𝘭𝘪𝘬𝘦 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘬𝘪𝘯𝘥,</a>
+<p align="center"><a href="https://open.spotify.com/track/0UOG0zUn7t8m8QcxfzR7AH?si=f28406ae96404201)"> 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘮𝘪𝘯𝘦, 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘢𝘸𝘧𝘶𝘭 𝘦𝘷𝘦𝘳𝘺 𝘵𝘪𝘮𝘦. ❞</a>
 <sup><p align="center">𝘥𝘦𝘵𝘳𝘰𝘪𝘵: 𝘣𝘦𝘤𝘰𝘮𝘦 𝘩𝘶𝘮𝘢𝘯 𝘦𝘯𝘵𝘩𝘶𝘴𝘪𝘢𝘴𝘵 𝘴𝘪𝘯𝘤𝘦 2020</p><sup>
 <p align="center">𝘭𝘪𝘴𝘵 𝘰𝘧 𝘣𝘶𝘥𝘥𝘪𝘦𝘴</p><p align="center">⟢ 𝘫𝘰𝘦𝘺, 𝘯𝘪𝘯𝘦𝘴, 𝘷𝘶𝘭𝘱𝘦𝘴, 𝘸𝘦𝘴𝘬𝘦𝘳, 𝘵𝘰𝘮, 𝘩𝘦𝘳𝘮𝘦𝘴,
 𝘳𝘰𝘭𝘢𝘯, 𝘬𝘢𝘵𝘦, 𝘬𝘢𝘵𝘵, 𝘬𝘢𝘳𝘢, 𝘰𝘥𝘺, 𝘭𝘦𝘰𝘯, 𝘦𝘭𝘪𝘴𝘦, 𝘥𝘵, 𝘤𝘢𝘴𝘦 & 𝘮𝘹 𝘳𝘰𝘣𝘭𝘰𝘹𝘪𝘢. ⟢</p>
