@@ -1,5 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=leomanfred)
 
+<sup><p align="center">![ezgif-788a10a885fccf](https://github.com/user-attachments/assets/c5609d67-e3e8-4db1-bb4d-c3583493e914)
 
 
 <p align="center"><a href="https://open.spotify.com/track/0UOG0zUn7t8m8QcxfzR7AH?si=f28406ae96404201)"> ❝ 𝘰𝘩, 𝘨𝘰𝘭𝘥𝘦𝘯 𝘣𝘰𝘺, 𝘥𝘰𝘯'𝘵 𝘢𝘤𝘵 𝘭𝘪𝘬𝘦 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘬𝘪𝘯𝘥,</a>
