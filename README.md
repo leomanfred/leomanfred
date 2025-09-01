@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=leomanfred)
 
-<sup><p align="center"><a href="https://open.spotify.com/track/0UOG0zUn7t8m8QcxfzR7AH?si=f28406ae96404201)"> ❝ 𝘰𝘩, 𝘨𝘰𝘭𝘥𝘦𝘯 𝘣𝘰𝘺, 𝘥𝘰𝘯'𝘵 𝘢𝘤𝘵 𝘭𝘪𝘬𝘦 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘬𝘪𝘯𝘥.</a><sup>
+<sup><p align="center"><a href="https://open.spotify.com/track/0UOG0zUn7t8m8QcxfzR7AH?si=f28406ae96404201)"> ❝ 𝘰𝘩, 𝘨𝘰𝘭𝘥𝘦𝘯 𝘣𝘰𝘺, 𝘥𝘰𝘯'𝘵 𝘢𝘤𝘵 𝘭𝘪𝘬𝘦 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘬𝘪𝘯𝘥,</a><sup>
 <sup><p align="center"><a href="https://open.spotify.com/track/0UOG0zUn7t8m8QcxfzR7AH?si=f28406ae96404201)"> 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘮𝘪𝘯𝘦, 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘢𝘸𝘧𝘶𝘭 𝘦𝘷𝘦𝘳𝘺 𝘵𝘪𝘮𝘦. ❞</a><sup>
 <sup><p align="center">♱ 𝘸𝘦𝘭𝘤𝘰𝘮𝘦 𝘵𝘰 𝘮𝘺 𝘨𝘪𝘵𝘩𝘶𝘣 ♱</p><sup>
 <p align="center">𝘭𝘪𝘴𝘵 𝘰𝘧 𝘣𝘶𝘥𝘥𝘪𝘦𝘴 :</p><p align="center">𝘫𝘰𝘦𝘺, 𝘯𝘪𝘯𝘦𝘴, 𝘷𝘶𝘭𝘱𝘦𝘴, 𝘸𝘦𝘴𝘬𝘦𝘳, 𝘵𝘰𝘮, 𝘩𝘦𝘳𝘮𝘦𝘴,
